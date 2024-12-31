@@ -47,8 +47,10 @@ own equity in crypto AI infrastructure that will appreciate in AI regime
 cultivate health to withstand the constant burn of future shock
 information overload, programming screen time etc.
 
-# divested divisions automating legal processes , spawning subsidiaries, IPOing them, exchanging title so
-# fast that by the time windfall tax demands are served companies don't exist anymore
+# divested divisions automating legal processes 
+spawning subsidiaries, IPOing them, exchanging title so
+fast that by the time windfall tax demands are served companies don't exist anymore
+
 automate company procedures from incorporating to listing like an economical von Neumann probe
 
 
